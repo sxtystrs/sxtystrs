@@ -1,4 +1,4 @@
-
+<p align="center">
 helo ,,, i am ciel ! but you can call me whatever my pony's name on ponytown is for simplicity and if it is eaiser . whatever works for you works for meee ...
 </p>
 <p align="center">
@@ -7,8 +7,6 @@ feel free to interact!!! i am fine with c+h or anything like that, but please ju
 <p align="center">
 if i don't respond i am probably offtab or afk, so sorry if i ignore you! i am on the "personal" tab of the chat in general, so please whisper if you want to say anything to me! i will most likely lose your message if i'm too focused on other things T_T
 </p>
-
-
 <p align="center">
 i am into a lot of stuff ,,, but mostly i am into alien stage. as well project sekai and holostars ^_^
 <p>
