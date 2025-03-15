@@ -15,6 +15,5 @@ i also like golden kaumy, sk8 the infinity, wuthering waves, and no home ,,, and
 <p/>
 <p align="center">
 i think that is it. sign my strawpage. ok goodbye!
-<p align="center">
-  <img src="![ezgif-256e54743af74f](https://github.com/user-attachments/assets/0865a58c-46a6-498e-ba17-b7ae9582163a)" alt="animated" />
-</p>
+<p/>
+
